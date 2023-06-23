@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @migueltwo
 - 👀 I’m interested in translate
 - 🌱 I’m currently learning about spanish 
-- 💞️ I’m looking to collaborate on translation, writing and finally
+- 💞️ I’m looking to collaborate on translation, writing 
 - 📫 How to reach me @miguelcontactmkt@gmail.com
 
 <!---
